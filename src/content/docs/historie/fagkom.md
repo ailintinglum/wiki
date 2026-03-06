@@ -5,11 +5,11 @@ title: "Fag- og kurskomiteen"
 Historie
 --------
 
-I årene før fagKom ble opprettet holdt linjeforeningen flere kurs og en
+I årene før Fagkom ble opprettet holdt linjeforeningen flere kurs og en
 serie med arrangementer kalt “Google Speaker Series” (GSS). Disse ble
 avholdt av bedKom med god hjelp fra andre komitémedlemmer. I forbindelse
 med disse foredragene oppdaget tidligere leder, Kjetil Balle, og Erlend
-Klakegg Bergheim fra bedKom, behovet for en fagkomite. Etter mye
+Klakegg Bergheim fra Bedkom, behovet for en fagkomite. Etter mye
 planlegging på bakrommet ble dette realisert, og slått fast i
 linjeforeninges vedtekter på generalforsamlingen i 2006. Det hadde også
 tidligere vært snakk om en fagkomité, men ideen hadde blitt droppet
@@ -26,7 +26,7 @@ aktuelle bedriftene. Som medlem av Fag- og kurskomiteen vil du få god
 innsikt i emner utenfor skolen, og samtidig knytte tettere bånd til din
 fremtidige arbeidsgiver.
 
-FagKom til daglig
+Fagkom til daglig
 -----------------
 
 Fag- og kurskomiteen jobber med å arrangere kurs, workshop, faglige
@@ -44,7 +44,8 @@ Medlemmer
 
 |År|Leder| Medlemmer |
 |----|---| -------- |
-|2025-2026|****|
+|2026-2027|****||
+|2025-2026|**Ailin Anjadatter Tinglum**|Ada Schweder Uglenes, Anja Ødegård, Eivind Østlyngen, Elyas Masumi, Erlend Golten Persen, Gurveer Singh, Holger Setten, Haakon Spilling, Ingrid Gustavsen, Jonas Kristiansen, Ludvig Zapffe, Magnus Strømseng, Mari Gjul, Mari Jin Sjøvold, Ola Munthe Vassbotn, Pelle Traalum Okkenhaug, Rebecca Selfors, Sebastian Dysterud, Tuva Marie Mork|
 |2024-2025|**Mari Gjul**| Aurora Nergaard, Frede Kjølseth Berdal, Johannes Landmark, Torunn Mikkelsen Bårdstu, Anders Stubberud, Erlend Golten Persen, Magnus Strømseng, Elise Telje, Per Håvard Skogli Holte, Mari Lehne, Sunniva Bjerke, Sara Seeberg-Rommetveit, Karen Singh Sandhu, Anja Ødegård, Mari Jin Sjøvold, Ola Munthe Vassbotn, Pelle Okkenhaug, Odin Lund, Holger Ekker Setten, Jonas Kristiansen, Tuva Marie Mork, Sasha Elizabeth Landell-Mills, Ailin Tinglum, Gurveer Singh, Ludvig Zapffe, Sebastian Dysterud|
 |2023-2024|**Sara Seeberg-Rommetveit**| Aurora Nergaard, Frede Kjølseth Berdal, Johannes Landmark, Torunn Mikkelsen Bårdstu, Anders Stubberud,Torstein Kristiansen Olsen, Egil Hagen, Erlend Golten Persen, Magnus Strømseng, Andreas "brukelig" Amundsen, Øyvind Jalland Schjerven, Elise Telje, Per Håvard Skogli Holte, André Schjøth, Elise Anna Francisca Rabassa Stautland, Ruben Kobbeltvedt, Ivar Hembre, Karan Singh Sandhu, Mari Lehne, Rebecca Ruud, Sunniva Bjerke, Christoffer Stensrud, Anja Ødegård, Mari Jin Sjøvold, Odin Lund, Pelle Okkenhaug, Ola Munthe Vassbotn, Mari Gjul|
 |2022-2023|**Tale Nygaard Eikenes**| Andreas "brukelig" Amundsen, Øyvind Jalland Schjerven, Elise Telje, Per Håvard Skogli Holte, André Schjøth, Elise Anna Francisca Rabassa Stautland, Ruben Kobbeltvedt, Ivar Hembre, Karan Singh Sandhu, Mari Lehne, Nikolai Mork, Rebecca Ruud, Sunniva Bjerke, Torstein Kristiansen Olsen, Egil Hagen, Erlend Golten Persen, Magnus Strømseng, Sara Seeberg-Rommetveit, Aurora Nergaard, Frede Kjølseth Berdal, Johannes Landmark, Torunn Mikkelsen Bårdstu, Anders Stubberud, Christoffer Stensrud, Hanna Thevik |
